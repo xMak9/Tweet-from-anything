@@ -2,7 +2,7 @@
 
 ## you CANNOT get banned for using this
 
-# ~~~ if you need any help contact me on discord @ Mak ♡#0001
+# ~~~ if you need any help contact me on discord @ Mak#1337
 
 # you need to have access to the twitter developer portal
 - if you don't you can submit a request to gain access to it
